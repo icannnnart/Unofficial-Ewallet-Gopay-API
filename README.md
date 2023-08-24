@@ -9,7 +9,7 @@ Dokumentasi nya  :
 bisa untuk cek mutasi,saldo gopay/coin gopay
 
 Yang mau donasi boleh untuk menjaga server xixixi
-Dana: 085155155369
+Dana: 085155155369<br>
 VIA QRIS juga gpp xixixi
 <br>
 
